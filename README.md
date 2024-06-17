@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @isoc0fw
+- 👀 I’m interested in IT and pc
+- ⚡ Fun fact: i'ma hacker... sry
